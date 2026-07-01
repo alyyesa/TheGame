@@ -5,3 +5,8 @@ mari
 kita
 main
 sama
+sama
+
+menang
+sama
+sama
